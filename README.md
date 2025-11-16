@@ -1,4 +1,4 @@
-Hey, I'm Cassian Lupfer or maybe known as CrowmountainGames!
+Hey, I'm Cassian Lupfer also known as Crow Mountain Games!
 
 <!---
 Cassian-Lupfer/Cassian-Lupfer is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
